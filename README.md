@@ -1,1 +1,3 @@
-# .github
+# *The Brutal Past of a Person Who Failed in Life | Why Being Failed Changes You Forever*
+## *The brutal past of a person who failed is rarely talked about—but it shapes everything. In this powerful motivational video, we explore the deep psychological, emotional, and human truth behind failure. Why does being failed hurt so deeply? Why do some people rise again while others remain stuck? If you’ve ever failed in life, lost a dream, faced rejection, or felt broken—this video is for you. Failure is not the end. It may be the beginning of your strongest self. Watch till the end to discover why failure is not the opposite of success—but its secret doorway.* [More details…](https://spiritualkhazaana.com/web-stories/failed-in-life/)
+## #failed #Failure #Resilience #PersonalGrowth #Mindset #Success #LifeLessons #Motivation #Inspiration #GrowthMindset #OvercomingFailure #SelfImprovement
